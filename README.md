@@ -24,10 +24,11 @@
 
 ![TrailBlazer Technologies Inc  Logo GOLD](https://user-images.githubusercontent.com/92419630/187091429-7fad433b-0967-42a3-bb3a-f3856b3832f7.png)
 
-
 ![disenofactura](https://user-images.githubusercontent.com/92419630/185852268-f87ec642-f80e-42de-8d79-4ffbc34e836b.png)
 
 ![crearcuenta](https://user-images.githubusercontent.com/92419630/185851854-40fb24e4-85b4-478c-9a7f-112d0168610f.png)
+
+![image](https://user-images.githubusercontent.com/92419630/187107613-9d35d6f3-b835-4de1-b0b4-54b9ef8bfa80.png)
 
 ![Imagen4](https://user-images.githubusercontent.com/92419630/186335879-09bc4c44-684a-42d5-811c-3999c5955614.png)
 
