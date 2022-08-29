@@ -28,9 +28,9 @@
 
 ![crearcuenta](https://user-images.githubusercontent.com/92419630/185851854-40fb24e4-85b4-478c-9a7f-112d0168610f.png)
 
-![image](https://user-images.githubusercontent.com/92419630/187107613-9d35d6f3-b835-4de1-b0b4-54b9ef8bfa80.png)
-
 ![Imagen4](https://user-images.githubusercontent.com/92419630/186335879-09bc4c44-684a-42d5-811c-3999c5955614.png)
+
+![image](https://user-images.githubusercontent.com/92419630/187107613-9d35d6f3-b835-4de1-b0b4-54b9ef8bfa80.png)
 
 ![Imagen5](https://user-images.githubusercontent.com/92419630/186335949-0e480689-d175-4e50-85ee-a9e317e5de30.png)
 
